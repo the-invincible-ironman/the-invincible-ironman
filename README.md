@@ -6,7 +6,7 @@
 
 
 
-<div align="left">
+<div align="center">
   
 ㅤㅤ
 [<img width="250" height="250" src="https://github.com/user-attachments/assets/d6effba5-75d6-43ca-a613-051f1ce1953d">](https://rentry.co/-stony)ㅤ
