@@ -1,26 +1,15 @@
 <div align="center">
-  
-<img width="550" height="710" align="left" src="https://files.catbox.moe/gd11or.png">
 
+  ![](https://komarev.com/ghpvc/?username=Bigguykoi&color=565655&label=ㅤㅤㅤㅤㅤㅤ&style=plastic)
+ 
+<img width="700" height="700" alt="image" src="https://github.com/user-attachments/assets/2b7333d2-2f4b-459d-b6cf-e0a16c1bd90a" />
 
-
-<br/>
-
-<img width="230" height="230" align="center" src="https://github.com/user-attachments/assets/089d60d7-17cc-4227-a214-f82335f885df" />
-
-<br/>
-
-<br/>
-
-$\text{\color{#f8c6ae} Howdy! Cud + int freely}$\
-$\text{\color{#f8c6ae} I'm usually offtab, so}$\
-$\text{\color{#f8c6ae} I would prefer if you'd}$\
-$\text{\color{#f8c6ae} whisper to get my attention}$\
-$\text{\color{#f8c6ae} (｡ᵕ ◞  . ◟) }$\
+$\text{\color{#874949} Hi! Cud + int freely}$\
+$\text{\color{#874949} I'm usually offtab, so}$\
+$\text{\color{#874949} I would prefer if you'd}$\
+$\text{\color{#874949} whisper to get my attention}$\
+$\text{\color{#874949} (｡ᵕ ◞  . ◟) }$\
 <br/>
 <br/>
 
-[<img width="120" height="120" src="https://files.catbox.moe/naheob.png">](https://Tonystark.atabook.org)  [<img width="120" height="120" src="https://files.catbox.moe/9qpdky.png">](https://tny-strk.straw.page)  [<img width="120" height="120" src="https://files.catbox.moe/yvep6j.png">](https://rentry.co/-stony)
 
-$\text{\color{#AF968A} Sign my ata before you go!}$
-</div>
