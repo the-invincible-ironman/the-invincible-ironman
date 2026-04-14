@@ -2,7 +2,7 @@
 
   ![](https://komarev.com/ghpvc/?username=Bigguykoi&color=565655&label=ㅤㅤㅤㅤㅤㅤ&style=plastic)
  
-<img width="750" height="750" alt="image" src="https://github.com/user-attachments/assets/e6e8aa9c-e7a6-4777-a978-fedd33a9891b" />
+<img width="750" height="750" alt="image" src="https://github.com/user-attachments/assets/67ce30d9-9804-4091-8060-48cae293a6b0" />
 
 
 
